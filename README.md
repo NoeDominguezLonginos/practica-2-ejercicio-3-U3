@@ -1,2 +1,3 @@
 # practica-2-ejercicio-3-U3
-![image](https://github.com/NoeDominguezLonginos/practica-2-ejercicio-3-U3/assets/148461767/b89cbd7d-f9c7-45a9-8e4c-cec0585e32c4)
+![Captura de pantalla practica 2 3U3](https://github.com/NoeDominguezLonginos/practica-2-ejercicio-3-U3/assets/148461767/3e045f0d-450c-4395-8d0a-34535b0a44d9)
+
